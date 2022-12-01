@@ -1,1 +1,1 @@
-My second readme is very challenging but excellent 
+My second readme is excellent 
